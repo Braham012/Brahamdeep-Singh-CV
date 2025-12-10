@@ -1,5 +1,3 @@
-# Brahamdeep-Singh-CV
-
 ## 📄 My CV
 You can view or download my CV here:
 
